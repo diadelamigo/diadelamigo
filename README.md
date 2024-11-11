@@ -3,4 +3,4 @@
 <br>
 
 ---
-<p align="center"> <a href="https://rentry.co/brit-pop)">rentry</a> ‎ ‎‎  ‎‎ ‎‎ <a href="https://discordid.netlify.app/?id=1284352087873814599">discord</a> ‎ ‎‎  ‎‎ ‎‎ <a href="https://neospring.org/@britpop">neospring</a> ‎ ‎‎  ‎‎ ‎‎  <a href="https://x.com/l0veol0gy5/status/1788378594806272129">for palestine!</a> <p align="center"> 
+<p align="center"> <a href="https://rentry.co/stufin)">rentry</a> ‎ ‎‎  ‎‎ ‎‎ <a href="https://discordid.netlify.app/?id=1284352087873814599">discord</a> ‎ ‎‎  ‎‎ ‎‎ <a href="https://neospring.org/@britpop">neospring</a> ‎ ‎‎  ‎‎ ‎‎  <a href="https://x.com/l0veol0gy5/status/1788378594806272129">for palestine!</a> <p align="center"> 
