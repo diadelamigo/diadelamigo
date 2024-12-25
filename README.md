@@ -1,4 +1,4 @@
-<p align='center'> days of <b> enjoyment to</b> which <i> everyone cheers!.</i> </p>
+<p align='center'> days of <b> enjoyment to</b> which <i> everyone cheers!</i> </p>
 <p align='center'> <img src="https://file.garden/ZzVDubmjQFsCWJ0u/my-image%20(1).png" width="350" title="damon albarn picture"></p>
 <br>
 
