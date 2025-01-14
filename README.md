@@ -1,6 +1,7 @@
-<p align='center'> days of <b> enjoyment to</b> which <i> everyone cheers!</i> </p>
-<p align='center'> <img src="https://file.garden/ZzVDubmjQFsCWJ0u/my-image%20(1).png" width="350" title="damon albarn picture"></p>
-<br>
+<div align="center">
+  
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xe4agh6dmnx4qejpvivisatr6e&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=616161&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xe4agh6dmnx4qejpvivisatr6e&redirect=true)
 
----
-<p align="center">  <a href="https://albarns.straw.page/">strawpage</a> ‎ ‎‎  ‎‎ ‎‎ <a href="https://discordid.netlify.app/?id=1284352087873814599">discord</a> ‎ ‎‎  ‎‎ ‎‎ <a href="https://neospring.org/@wild">neospring</a> ‎ ‎‎  ‎‎ ‎‎  <a href="https://x.com/l0veol0gy5/status/1788378594806272129">for palestine!</a> <p align="center"> 
+![](https://komarev.com/ghpvc/?username=ALBARNS&style=for-the-badge&color=708090)
+
+</div>
