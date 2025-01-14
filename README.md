@@ -3,4 +3,4 @@
 <br>
 
 ---
-<p align="center">  <a href="https://rvrbnd.straw.page/">strawpage</a> ‎ ‎‎  ‎‎ ‎‎ <a href="https://discordid.netlify.app/?id=1284352087873814599">discord</a> ‎ ‎‎  ‎‎ ‎‎ <a href="https://neospring.org/@damonalbarn">neospring</a> ‎ ‎‎  ‎‎ ‎‎  <a href="https://x.com/l0veol0gy5/status/1788378594806272129">for palestine!</a> <p align="center"> 
+<p align="center">  <a href="https://albarns.straw.page/">strawpage</a> ‎ ‎‎  ‎‎ ‎‎ <a href="https://discordid.netlify.app/?id=1284352087873814599">discord</a> ‎ ‎‎  ‎‎ ‎‎ <a href="https://neospring.org/@wild">neospring</a> ‎ ‎‎  ‎‎ ‎‎  <a href="https://x.com/l0veol0gy5/status/1788378594806272129">for palestine!</a> <p align="center"> 
