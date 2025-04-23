@@ -6,6 +6,6 @@
 ![](https://komarev.com/ghpvc/?username=ALBARNS&style=for-the-badge&color=708090)
 
 <hr>
-carrd in progress, so does my strawpage :)
+meow
 
 </div>
